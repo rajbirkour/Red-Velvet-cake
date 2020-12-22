@@ -1,0 +1,2 @@
+Step 1
+Red Velvet Cake is delicious and easy recipe, which can be prepared at home very easily by following some simple steps. Here’s how you can make this easy cake recipe. Take a bowl add flour, baking soda, cocoa powder and salt together. Keep the mixture aside.
